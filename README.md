@@ -1,4 +1,5 @@
 писят два
 лвмаыщжоызщ
 \q\AZWXESCDRTVFGBYHS`WECDRTVFHNUMJIO,KP.L
+47
 # duh
